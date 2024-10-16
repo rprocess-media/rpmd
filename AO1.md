@@ -10,7 +10,7 @@ You may be seated.
 
 1\.	Now, the message we're taking is *"The Anointed Ones at the End Time,"* and of course, we're very familiar with this subject. We've discussed it in many ways and many times, that is, the contents of it. And we shouldn't have too much difficulty going through it quite rapidly, as I say, because we know what it is about. That is we know what it is about thematically, perhaps not in all the details, and some of those details could be brought to our attention.
 
-2\.	Now, Bro. Branham was reading on page 3, from Matthew 24, especially verses 23--27, but he started in verse 15.
+2\.	Now, Bro. Branham was reading on page 3, from Matthew 24, especially verses 23–27, but he started in verse 15.
 
 > (15) (And) when ye therefore shall see the abomination of desolation, spoken of by Daniel the prophet, (standing) in the holy place, (whoso readeth, let him understand:)
 
