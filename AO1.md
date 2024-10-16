@@ -1,6 +1,6 @@
-# ﻿The Anointed Ones at the End Time #1
-## The Epiphany: Life and Anointing
-### Bro. Lee Vayle - February 15, 1987
+### ﻿The Anointed Ones at the End Time #1
+#### The Epiphany: Life and Anointing
+#### Bro. Lee Vayle - February 15, 1987
 
 Heavenly Father, we're very grateful again to know that You're here, that the Lord Himself descended with the Shout, with the Voice of the archangel, the Trump of God. And already we've heard the Shout which we know to be a message putting the Church in order, giving us revelation and wisdom concerning the hour in which we live, not only that, but concerning You Yourself; but not only that, but concerning the events and that which pertains to us. We're grateful for that, Lord.
 
