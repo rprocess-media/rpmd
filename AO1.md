@@ -511,7 +511,7 @@ Now, he's giving you the type right here. In the third day, and we're at it. At 
 
 > (23) Be glad then, ye children of Zion, (That's the Bride.) [and] rejoice in the LORD your God: for he hath given you the former rain moderately, and he will cause to come down for you the rain, the former rain, and the latter rain in the first... (Now, they've got 'month' there, but that's not so. What it is, is a continuation of the first. We're back to Ephesus. There's another Ephesian church. That's what's 	happening. 'Alpha is omega.' We've gone full cycle.)
 
-> (24) And the floors shall be full of wheat [..] (at that time, when it's no longer moderate. Fullness has come. That which is perfect is here. Full measure of the Word, full measure of Christ—Headship, Cornerstone, Capstone. Full cycle. You're right at the place now to go back to the Millennium.) [And] the floors shall be full of wheat, [and] the vats overflow with (oil and wine).
+> (24) And the floors shall be full of wheat [...] (at that time, when it's no longer moderate. Fullness has come. That which is perfect is here. Full measure of the Word, full measure of Christ—Headship, Cornerstone, Capstone. Full cycle. You're right at the place now to go back to the Millennium.) [And] the floors shall be full of wheat, [and] the vats overflow with (oil and wine).
 
 > (25) And I will restore to you the years the locust hath eaten, the cankerworm, [and] the caterpillar, [and] the palmerworm, my great army which I sent among you.
 
